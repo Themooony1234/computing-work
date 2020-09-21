@@ -29,6 +29,3 @@ The next morning an irritated demolition worker leapt angrily from his crane to 
 
 As the building fell in crumbling ruins, the carefully crafted might of the hotel crashed to the ground, and empty echoes streamed down the snow-muted streets, lost in the ears of the deaf-toned passerby, staring at the rectangles
 
-Prologue:
-
-Conor pulled his tie straight as he stepped 
